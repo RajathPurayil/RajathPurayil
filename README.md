@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RajathPurayil
-- 👀 I’m interested in intershi
+- 👀 I’m interested in intership
 - 🌱 I’m currently learning Computer Science at Algoma University,Ontario,Canada.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me rajath.k.p1@gmail.com
